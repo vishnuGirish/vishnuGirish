@@ -1,4 +1,4 @@
-[![Watch the video](https://img.youtube.com/vi/tFx_UNW9I1U/maxresdefault.jpg)](https://youtu.be/tFx_UNW9I1U)
+
 
 # 👋 Hi, I'm **Vishnu P P**
 
